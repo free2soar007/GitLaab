@@ -1,1 +1,1 @@
-impossibility is nothingg
+impossibility is nothing
